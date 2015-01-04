@@ -1,4 +1,0 @@
-cloveofgarlic
-=============
-
-Food blog
